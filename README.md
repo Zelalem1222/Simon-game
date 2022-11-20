@@ -18,7 +18,7 @@
 
 - GitHub: [@github](https://github.com/Zelalem1222)
 - Twitter: [@twitter](https://twitter.com/Zelalem52236790)
-- LinkedIn: [LinkedIn](https://twitter.com/Zelalem52236790)
+- LinkedIn: [LinkedIn](https://www.linkedin.com/in/zelalemfissha/)
 
 
 
